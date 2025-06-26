@@ -1,0 +1,1 @@
+This is a repository of conference talks and workshops I've given either solo, with peers, colleagues, or friends. If you found any of the content useful, I'd love to hear the feedback. Please feel free to reach out to be via LinkedIn or other social media platforms.
